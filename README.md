@@ -1,1 +1,3 @@
 -Diwakar Kumar Singh says that community is amazing.
+-Gandhi also says that community classroom is awesome.
+-
